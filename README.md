@@ -13,6 +13,3 @@
 ![image](https://github.com/user-attachments/assets/d8910993-07d2-44b2-8b1a-99488a699fbc)
 
 ![image](https://github.com/user-attachments/assets/b9d31e6e-70b8-49c8-a1b0-fdbfbfb3b55a)
-
-![image](https://github.com/user-attachments/assets/bc0894e4-4bb7-42d7-b7e2-29982630031e)
-
